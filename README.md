@@ -7,3 +7,4 @@
 ![Tarjetas Presentación Gretel Rodriguez Meza - Opera 1_14_2022 4_52_44 PM](https://user-images.githubusercontent.com/97907653/150041949-780eaa3b-f9c7-46b1-8c9f-5076ef27c59a.png)
 ![Tarjetas Presentación Gretel Rodriguez Meza - Opera 1_14_2022 4_53_00 PM](https://user-images.githubusercontent.com/97907653/150041952-5bb38ff4-9006-4861-a313-79c1b0c18bbe.png)
 ![Tarjetas Presentación Douglas Campbell Campbell - Opera 1_18_2022 6_44_19 PM](https://user-images.githubusercontent.com/97907653/150042110-bb159553-2410-4a2b-af0a-4806f5758f67.png)
+![Tryit Editor v3 7 - Opera 1_18_2022 6_48_19 PM](https://user-images.githubusercontent.com/97907653/150042500-d3695346-5f10-44cb-8e19-05f47e8fbdf9.png)
