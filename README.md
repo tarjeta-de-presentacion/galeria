@@ -9,3 +9,5 @@
 ![Tarjetas Presentación Douglas Campbell Campbell - Opera 1_18_2022 6_44_19 PM](https://user-images.githubusercontent.com/97907653/150042110-bb159553-2410-4a2b-af0a-4806f5758f67.png)
 ![Tryit Editor v3 7 - Opera 1_18_2022 6_48_19 PM](https://user-images.githubusercontent.com/97907653/150042500-d3695346-5f10-44cb-8e19-05f47e8fbdf9.png)
 ![Tryit Editor v3 7 - Opera 1_18_2022 6_55_06 PM](https://user-images.githubusercontent.com/97907653/150043203-0b438916-dc0b-43b7-8e63-da0595d7e748.png)
+![yo](https://user-images.githubusercontent.com/97907653/150045201-5d466e90-4202-4f7e-9fc0-a078feac98bf.png)
+![intento](https://user-images.githubusercontent.com/97907653/150045204-9b6ef5fa-95c2-4f88-9a9e-36b892e35fcd.png)
